@@ -6,10 +6,26 @@
 </div>
 
 -------------------------------------------------
-HELLO!!! My name is LEYN <sub>(You may call me Vi aswell!)</sub> and I am an 18 year old; If you are not comfy, idm! You can avoid me if you want since i do respect boundaries. I am not specifically adding age limits since it's not like I send foul stuff like weird people out there in the internet *shivers* HAHAHASH. I usually type in all caps since IM SCARED that people might see me "cold" LMFAOOO though beware: I dry text whenever I'm not in the mood/low on energy. SO DONT THIKN IM MAD AT YOU...!!!1 I'm! A very nice guy- :boom:*gets shot* /JJ
+HELLO!!! My name is LEYN <sub>(You may call me Vi aswell!)</sub> and I am an 18 year old; If you are not comfy, idm! You can avoid me if you want since i do respect boundaries. I am not specifically adding age limits since it's not like I send foul stuff like weird people out there in the internet *shivers* HAHAHASH. I usually type in all caps since IM SCARED that people might see me "cold" LMFAOOO though beware: I dry text whenever I'm not in the mood/low on energy. SO DONT THIKN IM MAD AT YOU...!!!1 I'm! A very nice guy- :boom:*gets shot* /JJ i also type very fast,,. that's kind of slow..?  , making me have lots of typos AND ALSO BAD GRAMMAR. so.. BEAR WITH ME PLSPSLPSL!!!!!!!!
+
+If you want to int, FEEL FREE! Though I usually dont take the first step CAUSE IM SOMETIMES VERYYY SHY >_<;; LMFFOAOFAOAOHAWHAHHA i liek making friends :3 ANOTHER THING, I love all of my friends—and as I said: "im not usually to take the first step"—that means if we ever get to be friends in discord, I wont be the first one to chat SOBBSSS (its cause i dont have annything to say which makes it awkward💔)
+
+I use tonetags ALOT. So I kindly do appreciate it if you were to use them aswell ESPECIALLY IF UR A DRY TEXTER lma.o....! Cause I'm worried that I would misunderstand what ur saying sobs;; CAUSE SOMETIMES. I would think that it could be a joke since I'm all sunshine and rainbows but in reality u were actually pretty serious NOW THAT WOULD BE VERY...! embarrassing .! gulps.
+
+Please. PLEASE. Tell me if you have something to say to me :( Be it good or bad stuff, idm! I'm here to hear you out so that I could continue doing my good aspects and change the bad ones! It's better to be self-aware than continue doing awful stuff that nobody even wants u to do. 
+
+All of my friends know this: I am very stubborn. I am the type of person who is all for justice and integrity. So ig you could say that once you had your chance, you're never getting it back LMFAOOA Kinda guessed why people who got on my bad side are scared of me/LH
+Either way, I'm not often like that. I just become like that if some childish drama starts happening HAHHAHHA One of the reasons why most of my friends see me as their older sibling figure/pos
+<br>
+<br>
+<sub>(You don't have to read all this if u want)</sub>
+<div align="center">
+─── ⋆⋅☆⋅⋆ ───
+</div>
+<br>
 
 - If you're wondering!!!! Here's the LIST OF FANDOMS I AM IN:<br>
-⊹ ࣪ ˖ *Pjsk, Alnst, Tshd, Sk8, Phantom Busters, Gachiakuta, Gokurakugai, SSS Class Suicide Hunter, The Hunter Wants to Live Quietly, Orv, Kpdh, Crk, Genshin, Hsr, Kny, Link Click, Spiderverse, Marvel, Little Nightmares, Mouthwashing, BatIM, Fnaf, etc.*
+⊹ ࣪ ˖ <i>Pjsk, Alnst, Tshd, Sk8, Phantom Busters, Gachiakuta, Gokurakugai, SSS Class Suicide Hunter, The Hunter Wants to Live Quietly, Orv, Kpdh, Crk, Genshin, Hsr, Kny, Link Click, Spiderverse, Marvel, Little Nightmares, Mouthwashing, BatIM, Fnaf, etc.</i>
 
 - MUSIC TASTE?!?!?!<br>
 ⊹ ࣪ ˖ *Cup of Joe, PPOP <sub>(Esp: SB19, Alamat, etc)</sub> , Laufey, MICO, 5 Seconds of Summer, The Vamps, KATSEYE, Chappell Roan, JPOP, Ricky Montgomery, Paramore, Atarashii Gakko!, Yaelokre, Mitski, BABYMETAL, AKUGETSU, Avril Lavigne, Adele, Aurora, some theatrical musicals, etc.*
@@ -30,4 +46,9 @@ HELLO!!! My name is LEYN <sub>(You may call me Vi aswell!)</sub> and I am an 18 
 
 ![](https://komarev.com/ghpvc/?username=villeynn&style=for-the-badge&color=cfa435)
 
+</div>
+
+
+<div align="center">
+ ˖.𖥔 ݁ ˖ ⊹ ࣪ ˖ 
 </div>
