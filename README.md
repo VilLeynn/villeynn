@@ -30,10 +30,10 @@ Either way, I'm not often like that. I just become like that if some childish dr
 <br>
 
 - If you're wondering!!!! Here's the LIST OF FANDOMS I AM IN:<br>
-⊹ ࣪ ˖ <i>Pjsk, Alnst, Tshd, Sk8, All Saints Street Phantom Busters, Gachiakuta, Gokurakugai, SSS Class Suicide Hunter, The Hunter Wants to Live Quietly, Orv, Kpdh, Crk, Genshin, Hsr, Kny, Link Click, Spiderverse, Marvel, Little Nightmares, Mouthwashing, BatIM, Fnaf, etc.</i>
+⊹ ࣪ ˖ <i>Pjsk, Alnst, Tshd, Sk8, All Saints Street, Phantom Busters, Gachiakuta, Gokurakugai, SSS Class Suicide Hunter, The Hunter Wants to Live Quietly, Orv, Kpdh, Crk, Genshin, Hsr, Kny, Link Click, Spiderverse, Marvel, Little Nightmares, Mouthwashing, BatIM, Fnaf, etc.</i>
 
 - MUSIC TASTE?!?!?!<br>
-⊹ ࣪ ˖ *Cup of Joe, PPOP <sub>(Esp: SB19, Alamat, etc)</sub> , Laufey, MICO, 5 Seconds of Summer, The Vamps, KATSEYE, Chappell Roan, JPOP, Ricky Montgomery, Paramore, Atarashii Gakko!, Yaelokre, Mitski, BABYMETAL, AKUGETSU, Avril Lavigne, Adele, Aurora, some theatrical musicals, etc.*
+⊹ ࣪ ˖ *Cup of Joe, PPOP <sub>(Esp: SB19, Alamat, etc)</sub> , Laufey, MICO, 5 Seconds of Summer, The Vamps, KATSEYE, Chappell Roan, JPOP, Ricky Montgomery, Paramore, Sleep Token, Lemon Demon, Atarashii Gakko!, Yaelokre, Mitski, BABYMETAL, AKUGETSU, Avril Lavigne, Adele, Aurora, some theatrical musicals, etc.*
 
 <div align="center">
   <h2>𝓘 𝓛𝓞𝓥𝓔 𝓟𝓞𝓛𝓨𝓢𝓗𝓞𝓦 <3333</h2>
