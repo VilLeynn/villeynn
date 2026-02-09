@@ -51,4 +51,6 @@ Either way, I'm not often like that. I just become like that if some childish dr
 
 <div align="center">
  ˖.𖥔 ݁ ˖ ⊹ ࣪ ˖ 
+
+  Might clean this up soon
 </div>
