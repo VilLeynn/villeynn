@@ -14,8 +14,15 @@
 
 
 
-[✦CARRD](https://trashleyn.carrd.co/#) &ensp; . &ensp; [✦ATABOOK](https://trashleyn.atabook.org/) &ensp; . &ensp; [✦STRAWPAGE](https://villeynn.straw.page/) &ensp; . &ensp; [✦PRNS](https://en.pronouns.page/@villeynn)
+ &ensp; &ensp;[✦𝙲𝙰𝚁𝚁𝙳](https://trashleyn.carrd.co/#) &ensp;  &ensp; [✦𝙰𝚃𝙰𝙱𝙾𝙾𝙺](https://trashleyn.atabook.org/) &ensp; <br>
+˚⟡˖ ࣪ &ensp;[✦𝚂𝚃𝚁𝙰𝚆𝙿𝙰𝙶𝙴](https://villeynn.straw.page/) &ensp; . &ensp; [✦𝙿𝚁𝙽𝚂](https://en.pronouns.page/@villeynn) &ensp;  .  &ensp; [✦𝚁𝙴𝙽𝚃𝚁𝚈](https://rentry.co/villeynn) &ensp; ˚⟡˖ ࣪
+</div>
 
+<div align="center">
+<sup>rentry made by ren TYSM :(</sup>
+
+
+<br>
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/a92de109-ec1e-4b2b-9fca-2ac8397d2a74" />
 <br>
 <br>
