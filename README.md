@@ -39,7 +39,8 @@
 ↓↓↓  These dudes stink of pee  ↓↓↓
 <br>
 
- [@vivibasu](https://github.com/vivibasu) &ensp; [@delusionofdawn](https://github.com/delusionofdawn) &ensp; [@Yaoi-shihoan](https://github.com/Yaoi-shihoan) &ensp; [@Jishoumushoku](https://github.com/Jishoumushoku) &ensp; [@ansyellowhairclip](https://github.com/ansyellowhairclip) &ensp; [@kmshirorui](https://github.com/kmshirorui) &ensp; [@vividstreet](https://github.com/vividstreet)
+ [@vivibasu](https://github.com/vivibasu) &ensp; [@delusionofdawn](https://github.com/delusionofdawn) &ensp; [@Yaoi-shihoan](https://github.com/Yaoi-shihoan) &ensp; [@onyxcos](https://github.com/onyxcos) <br>
+ [@Jishoumushoku](https://github.com/Jishoumushoku) &ensp; [@ansyellowhairclip](https://github.com/ansyellowhairclip) &ensp; [@kmshirorui](https://github.com/kmshirorui) &ensp; [@vividstreet](https://github.com/vividstreet)
 <br>
 
 <sup>It's actually a special mention ˙𐃷˙</sup>
