@@ -15,11 +15,11 @@
 
 
  &ensp; &ensp;[✦𝙲𝙰𝚁𝚁𝙳](https://trashleyn.carrd.co/#) &ensp;  &ensp; [✦𝙰𝚃𝙰𝙱𝙾𝙾𝙺](https://trashleyn.atabook.org/) &ensp; <br>
-˚⟡˖ ࣪ &ensp;[✦𝚂𝚃𝚁𝙰𝚆𝙿𝙰𝙶𝙴](https://villeynn.straw.page/) &ensp; . &ensp; [✦𝙿𝚁𝙽𝚂](https://en.pronouns.page/@villeynn) &ensp;  .  &ensp; [✦𝚁𝙴𝙽𝚃𝚁𝚈](https://rentry.co/villeynn) &ensp; ˚⟡˖ ࣪
+˚⟡˖ ࣪ &ensp;[✦𝚂𝚃𝚁𝙰𝚆𝙿𝙰𝙶𝙴](https://villeynn.straw.page/) &ensp; . &ensp; [✦𝙿𝚁𝙽𝚂](https://en.pronouns.page/@villeynn) &ensp; ˚⟡˖ ࣪
 </div>
 
 <div align="center">
-<sup>rentry made by ren TYSM :(</sup>
+<sup>AGHH WHY IS THR OWNER OF RENTRY A ZIONIST</sup>
 
 
 <br>
