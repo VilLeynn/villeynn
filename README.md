@@ -61,7 +61,7 @@
 <h2>₊ ⊹ . ݁ 𝙼𝚄𝚂𝙸𝙲 𝚃𝙰𝚂𝚃𝙴  ݁. ⊹ ₊</h2>
 </div>
 
-⊹ ࣪ ˖ Cup of Joe, PPOP, Laufey, MICO, 5 Seconds of Summer, Fall Out Boy, The Vamps, KATSEYE, Chappell Roan, Bruno Mars, JPOP, Ricky Montgomery, Paramore, Sleep Token, Lemon Demon, Atarashii Gakko!, Yaelokre, Mitski, BABYMETAL, AKUGETSU, Avril Lavigne, One Direction, Aurora, My Chemical Romance, musicals, etc.
+⊹ ࣪ ˖ Theater Musicals, Cup of Joe, PPOP, Laufey, MICO, 5 Seconds of Summer, Fall Out Boy, The Vamps, KATSEYE, Chappell Roan, Bruno Mars, JPOP, Ricky Montgomery, Paramore, Sleep Token, Lemon Demon, Atarashii Gakko!, Yaelokre, Mitski, BABYMETAL, AKUGETSU, Avril Lavigne, One Direction, Aurora, My Chemical Romance, musicals, etc.
 
 #
 
