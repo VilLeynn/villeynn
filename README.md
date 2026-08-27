@@ -54,7 +54,7 @@
 <h2>₊ ⊹ . ݁ 𝙻𝙸𝚂𝚃 𝙾𝙵 𝙵𝙰𝙽𝙳𝙾𝙼𝚂  ݁. ⊹ ₊</h2>
 </div>
 
-⊹ ࣪ ˖ Pjsk, Hsr, nte, Alnst, Tshd, Sk8, Minecraft ARGs, All Saints Street, Phantom Busters, Not A Shoujo Love Story, Gachiakuta, Gokurakugai, Marvel, SSS Class Suicide Hunter, The Hunter Wants to Live Quietly, Orv, Link Click, Little Nightmares, Mouthwashing, BatIM, Fnaf, etc.
+⊹ ࣪ ˖ Pjsk, Hsr, Nte, Alnst, Tshd, Sk8, Minecraft ARGs, All Saints Street, Not A Shoujo Love Story, Gachiakuta, Gokurakugai, Marvel, SSS Class Suicide Hunter, The Hunter Wants to Live Quietly, Orv, Link Click, Little Nightmares, Mouthwashing, BatIM, Fnaf, etc.
 
 ---
 <div align="center">
